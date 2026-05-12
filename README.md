@@ -1,1 +1,0 @@
-# SM-G4-1_SigneScript
